@@ -21,7 +21,7 @@
    
  
  
-❲ $${\color{lightgreen}⸝⸝⸝𝖡𝖯𝖣𝖠𝖴𝖣𝖧𝖣}$$ ❳ 𓏵
+❲ $${\color{lightgreen}⸝⸝⸝GER+ENG}$$ ❳ 𓏵
 ❲ $${\color{lightgreen}☓ \space \color{lightgreen}𝖣𝖭𝖨⸝⸝⸝}$$ ❳
 
 
