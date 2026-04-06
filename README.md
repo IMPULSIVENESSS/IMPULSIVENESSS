@@ -25,6 +25,7 @@
 ❲ $${\color{lightgreen}☓ \space \color{lightgreen}𝖣𝖭𝖨⸝⸝⸝}$$ ❳
 
 
+[ 𑣲 TUMBLR :](https://impulsivenesss.tumblr.com/?source=share)
 $${\color{white}✩ ⛧ ✩}$$
-[: ATABOOK ⚟](https://autocannibal.atabook.org/)
+[: ATABOOK ⸝⸝](https://autocannibal.atabook.org/) 
 
