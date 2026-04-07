@@ -2,9 +2,9 @@
 
 
   
-  ❲ ITS JUST A PIECE OF $${\color{lightgreen}𝖲𝖮𝖢𝖨𝖤𝖳𝖸}$$ , THEY PUT $${\color{lightgreen} 𝖨𝖭𝖲𝖨𝖣𝖤}$$ OF $${\color{lightgreen}𝖬𝖤}$$ , ❳   
+  ❲ $${\color{RED}𝗦𝗘𝗘}$$ HOW THE $${\color{RED}𝗕𝗥𝗔𝗜𝗡}$$ PLAYS AROUND , ❳   
 
-❲  AND ITS $${\color{lightgreen}𝖲𝖮}$$ $${\color{lightgreen}𝖴𝖭𝖥𝖠𝖨𝖱}$$ , ❳   
+❲  AND YOU $${\color{RED}𝗙𝗔𝗟𝗟}$$ INSIDE A $${\color{RED}𝗛𝗢𝗟𝗘}$$ YOU COULDNT $${\color{RED}𝗦𝗘𝗘}$$ , ❳   
 
  ❲ ![1000005317](https://github.com/user-attachments/assets/b4997758-31ba-4a58-a423-43af682eb007) ❳
  
@@ -21,8 +21,8 @@
    
  
  
-❲ $${\color{lightgreen}⸝⸝⸝GER+ENG}$$ ❳ 𓏵
-❲ $${\color{lightgreen}☓ \space \color{lightgreen}𝖣𝖭𝖨⸝⸝⸝}$$ ❳
+❲ $${\color{RED}⸝⸝⸝𝙂𝙀𝙍 + 𝙀𝙉𝙂}$$ ❳ 𓏵
+❲ $${\color{red}-𝟭𝟯 \space \color{RED}𝘿𝙉𝙄⸝⸝⸝}$$ ❳
 
 
 [ 𑣲 TUMBLR :](https://impulsivenesss.tumblr.com/?source=share)
