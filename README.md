@@ -13,6 +13,30 @@
 
  ❲ ![1000005317](https://github.com/user-attachments/assets/b4997758-31ba-4a58-a423-43af682eb007) ❳
  
+ <details>
+<summary> 🚷INTERESTS🚷 </summary
+<ul><li>RESIDENT EVIL</li>
+<li>FIGHT CLUB</li></ul>
+<li>JAGUARS/LEOPARDS/TIGERS</li></ul>
+<li>DOGS</li></ul>
+<li>BIRDS</li></ul>
+<li>SEALS</li></ul>
+<li>FALLOUT NEW VEGAS</li></ul>
+<li>EDDSWORLD</li></ul>
+<li>OUTLAST</li></ul>
+<li>CASTLE CRASHERS</li></ul>
+<li>CALL OF DUTY</li></ul>
+<li>POKÈMON</li></ul>
+<li>MARVEL</li></ul>
+<li>PEACEMAKER</li></ul>
+<li>THE BOYS</li></ul>
+<li>AQUA TEEN HUNGE FORCE</li></ul>
+<li>FUTURAMA</li></ul>
+<li>HANNIBAL</li></ul>
+<li>RICK AND MORTY</li></ul>
+   
+</details>
+ 
 ![IMG_0487](https://github.com/user-attachments/assets/3f9f3ae6-821f-4a18-9a6b-963cc31d337c)
 
 
@@ -36,5 +60,4 @@
 [ 𑣲 TUMBLR :](https://impulsivenesss.tumblr.com/?source=share)
 $${\color{white}✩ ⛧ ✩}$$
 [: ATABOOK ⸝⸝](https://autocannibal.atabook.org/) 
-
 
