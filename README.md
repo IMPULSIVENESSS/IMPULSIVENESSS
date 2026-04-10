@@ -57,7 +57,7 @@
 ❲ $${\color{red}-𝟭𝟯 \space \color{RED}𝘿𝙉𝙄⸝⸝⸝}$$ ❳
 
 
-[ 𑣲 TUMBLR :](https://impulsivenesss.tumblr.com/?source=share)
+[ 𑣲 TIKTOK :](https://www.tiktok.com/@impulsivenesss?_r=1&_t=ZG-95PRA0Z7u1B)
 $${\color{white}✩ ⛧ ✩}$$
 [: ATABOOK ⸝⸝](https://autocannibal.atabook.org/) 
 
