@@ -16,6 +16,7 @@
  <details>
 <summary> 🚷INTERESTS🚷 </summary
 <ul><li>RESIDENT EVIL</li>
+<li>ZERO DAY</li>
 <li>FIGHT CLUB</li></ul>
 <li>JAGUARS/LEOPARDS/TIGERS</li></ul>
 <li>DOGS</li></ul>
