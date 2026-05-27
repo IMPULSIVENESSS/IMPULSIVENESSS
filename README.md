@@ -19,10 +19,6 @@
 <li>ZERO DAY</li>
 <li>FIGHT CLUB</li></ul>
 <li>AMERICAN PSYCHO</li>
-<li>JAGUARS/LEOPARDS/TIGERS</li></ul>
-<li>DOGS</li></ul>
-<li>BIRDS</li></ul>
-<li>SEALS</li></ul>
 <li>FALLOUT NEW VEGAS</li></ul>
 <li>EDDSWORLD</li></ul>
 <li>OUTLAST</li></ul>
