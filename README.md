@@ -16,7 +16,8 @@
  <details>
 <summary> 🚷INTERESTS🚷 </summary
 <ul><li>RESIDENT EVIL</li>
-<li>ZERO DAY</li>
+<li>DOOM PATROL</li>
+<li>NINAH</li>
 <li>FIGHT CLUB</li></ul>
 <li>AMERICAN PSYCHO</li>
 <li>FALLOUT NEW VEGAS</li></ul>
