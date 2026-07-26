@@ -15,10 +15,10 @@
  
  <details>
 <summary> 🚷INTERESTS🚷 </summary
-<ul><li>RESIDENT EVIL</li>
-<li>DOOM PATROL</li>
+<ul><li>DOOM PATROL</li>
 <li>NINAH</li>
-<li>FIGHT CLUB</li></ul>
+<li>FIGHT CLUB</li>
+<li>RESIDENT EVIL</li></ul>
 <li>AMERICAN PSYCHO</li>
 <li>FALLOUT NEW VEGAS</li></ul>
 <li>EDDSWORLD</li></ul>
